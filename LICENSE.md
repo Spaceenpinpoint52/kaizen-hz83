@@ -1,4 +1,4 @@
-#  
+#  best kaizen Script is the best kaizen Script, featuring god mode and custom skins. Safe and powerful for all your needs.
 
 
 
